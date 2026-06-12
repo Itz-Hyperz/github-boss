@@ -49,6 +49,18 @@ We work with modern tools depending on the project:
 
 ---
 
+## 🚀 Michigan Website Builder Services
+
+We specialize in building fast, modern, and conversion-focused websites for businesses across Michigan, including small towns and growing communities like:
+
+- Petoskey, MI
+- Gaylord, MI
+- Boyne City, MI
+- Harbor Springs, MI
+- Northern Michigan & beyond
+
+---
+
 ## 📊 SEO Promise
 
 We don’t guarantee magic, but we *do* guarantee:
